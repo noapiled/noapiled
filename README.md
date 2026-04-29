@@ -5,6 +5,3 @@
 
 ꒰ྀི　(:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅)　✚༏ིྀᐩ⠀꒱꒱
 
-<img1 src="https://i.pinimg.com/avif/736x/bf/ff/8b/bfff8b26d23082f74cca487b21c48b0c.avf" alt="This may contain: an anime character with pink hair and blue eyes"/><img width="1200" height="460" alt="image" src="https://github.com/user-attachments/assets/c1cb27fe-deae-4fa8-90ec-aaf4de375933" />
-
-
