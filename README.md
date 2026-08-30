@@ -10,6 +10,7 @@
 𓈒𓊆݃ᩚ<img1 src="https://i.postimg.cc/ZBzhpnjh/br54.gif"/><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f8bc0707-b3f0-47db-a7a9-0b337c332733" />
 𓈒໋݃𓇮𓈒𝄄̫ᥒꪮ࣭֗ α࣭֔͝𓈒ׁ༷⃞ 17 ̫𓈒ֺּׁྐ۪<img1 src="https://i.postimg.cc/hhh0Tszc/br29.gif"/><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/65a5c77a-99f4-48bb-a594-d22cb37f0468" /> 
 
+<img1 src="https://i.postimg.cc/jdm9K92b/7x5y0x.gif"/><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5eb538e2-eeea-45a5-9b8d-c4be1cabc641" />
 ଘ𓂅ƙׁׅ֑υׁׅꪀׁׅɑׁׅ֮ƙׁׅ֑ꪱׁׅժׁׅ݊ɑׁׅ֮⌯ഒ⊹𓂅ꪗꪊꪑꫀ ๑ꮺ <img1 src="https://i.postimg.cc/d19fRVJR/18unn4.gif"/><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/a486eae1-d933-42f0-99a6-2ab6837ed43a" />
 
 
