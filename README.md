@@ -26,6 +26,8 @@
  ᦔꪮꪶꪶ༚<img1 src="https://i.postimg.cc/W3pjrK0y/6fjuhr.gif"/><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/201b80bd-edfa-40a3-aa1c-7a420946e17d" />
 𖾝۫⳯ᧆ𓈒︭ຽׄ ᩧຼ  
 
+<img1 src="https://i.postimg.cc/G2h7kryv/px6k8r.gif"/><img width="72" height="18" alt="image" src="https://github.com/user-attachments/assets/4b154ff8-5ec7-4cf6-a6ad-10fc30506afd" />
+
 <img1 src="https://files.catbox.moe/ge0wpz.gif"/><img width="180" height="10" alt="image" src="https://github.com/user-attachments/assets/3a37fc2c-d1d8-4672-90d3-f4fe89d2530b" />
 
 
